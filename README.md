@@ -1,5 +1,5 @@
 # Иван Борисов
-![Иван](https://downloader.disk.yandex.ru/preview/0e0c6b812f399ee4c580092bc8dfd712d6cbe89a72d6ae8b3cba8bcb20d106ed/639756ca/CEbNTOc4ZSg-kZFuquk0FYvFs2FcURbsx778OwtzDVnHggveMgUyAG01PscY4Z1EuWr1uzcOT140jy0AvXikvQ%3D%3D?uid=0&filename=Открыть%20README.md%20для%20предварительного%20просмотра%20-%20about-me%20-%20Visual%20Studio%20Code%202022-12-12%2016.24.15.png&disposition=inline&hash=&limit=0&content_type=image%2Fpng&owner_uid=0&tknv=v2&size=2048x2048)
+![Иван](https://sun9-33.userapi.com/impf/c847216/v847216660/4181f/qE1ouX69bqI.jpg?size=2048x1536&quality=96&sign=85993d1dc7581139988aefd4a09a29b4&type=album)
 
 ## Обо мне:
 * Мне 34 года.
